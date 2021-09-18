@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lotilie from Eichenzell
+- 👀 I’m interested in openWB
+- 🌱 I’m currently learning first steps
+- 💞️ I’m looking to collaborate on Car Charging with PV 
+- 📫 How to reach me lothar@l-jestaedt.de or +4915253693820
